@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @kldoudou
-- 👀 I’m interested in mathematics
+- 👀 I’m interested in mathematics. I'm in Imperial College London.
