@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @kldoudou
-- 👀 I’m interested in mathematics. I'm in Imperial College London.
+- 👀 I’m interested in applied mathematics and compute science. I'm a MSc student in Imperial College London.
